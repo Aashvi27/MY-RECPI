@@ -1,0 +1,1 @@
+Take a pan and put water in it. Let is boil.Now put maggi in it and mix it well and add the maggi masala to it and let the water evoprate one forth . Now  add  all the sauces in it and put 3-4 spoon of butter and add 3 cube of amul cheese . now it  is ready to eat .
